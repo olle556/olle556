@@ -5,5 +5,5 @@
 - 👯 Feel free to reach out for collabs!
 
 - 📫 How to reach me:
-  https://www.linkedin.com/in/olle-evertsson/
+https://www.olleevertsson.com/
   
